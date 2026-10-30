@@ -1,5 +1,5 @@
 # learn notes on fret, random fret generator
-
+[Buy me a coffee](https://www.paypal.com/ncp/payment/UY6RJK9AQ6HVC)
 
 # ONLINE GUITAR TRAINER.
 
